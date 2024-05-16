@@ -1,0 +1,2 @@
+# Al-khorazmiy
+ htmlda yozldi
